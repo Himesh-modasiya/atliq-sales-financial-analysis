@@ -184,8 +184,7 @@ I enjoy transforming raw data into meaningful insights and building analytical r
 
 ### 🔗 Connect With Me
 
-**LinkedIn:** www.linkedin.com/in/
-modasiya-himesh-555b98378
+**LinkedIn:** www.linkedin.com/in/modasiya-himesh-555b98378
 
 **GitHub:** https://github.com/Himesh-modasiya
 
